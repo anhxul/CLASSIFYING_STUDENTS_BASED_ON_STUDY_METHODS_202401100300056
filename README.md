@@ -1,1 +1,10 @@
 # CLASSIFYING_STUDENTS_BASED_ON_STUDY_METHODS_202401100300056
+![Screenshot 2025-05-13 144400](https://github.com/user-attachments/assets/0b3b88dd-fe45-46a7-88e5-b9026addf230)
+![Screenshot 2025-05-13 144501](https://github.com/user-attachments/assets/e0dc6faa-b310-41b3-8fd8-5bba21bfbc52)
+![Screenshot 2025-05-13 144646](https://github.com/user-attachments/assets/16be5e0f-b151-41bf-8ef3-ede8b25ec0b1)
+![Screenshot 2025-05-13 144711](https://github.com/user-attachments/assets/ec19dec1-6959-4b85-b68e-55d5553aa360)
+![Screenshot 2025-05-13 144754](https://github.com/user-attachments/assets/bf811608-b53c-479c-8048-4eadc4668182)
+![Screenshot 2025-05-13 144812](https://github.com/user-attachments/assets/b7daa1d7-5517-40b0-8fd5-7d9ef9fca1b3)
+![Screenshot 2025-05-13 144829](https://github.com/user-attachments/assets/9b3db81f-6273-48e8-a54d-3b23fdbe07ac)
+![Screenshot 2025-05-13 144847](https://github.com/user-attachments/assets/dc8805d2-c71a-4b17-b91a-f17586659e86)
+![Screenshot 2025-05-13 144907](https://github.com/user-attachments/assets/37c67b1b-69be-417d-bbcb-82c5c4e1ae00)
